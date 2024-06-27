@@ -1,4 +1,4 @@
-                                                                          privacy policy
+                                                 privacy policy
 
 This privacy policy explains how this application collects, uses, and discloses information related to users accessing and using our services through the application.
 
